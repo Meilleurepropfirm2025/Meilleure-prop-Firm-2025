@@ -1,4 +1,4 @@
-# Meilleure prop Firm 2025
+# Meilleure prop Firm 2025, Le top pour commencer
 
 
 Le trading financé avec une **Prop Firm** permet d’accéder à un capital important sans risquer ses propres fonds. Mais réussir dans cet environnement exige une **gestion du risque stricte**, une **stratégie technique éprouvée** et une **discipline absolue**.
